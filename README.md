@@ -1,2 +1,2 @@
 # Mind-Map
-photos of Mind Map for  "cat for food" project
+images of Mind Map for  "cat for food" project
